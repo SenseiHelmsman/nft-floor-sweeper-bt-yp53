@@ -1,4 +1,4 @@
-# 
+# rare bot de negociação NFT executor é o melhor bot de negociação NFT executor com nós RPC privados e varredura de coleções. Seguro, confiável e otimizado para estratégias de
 
 
 
